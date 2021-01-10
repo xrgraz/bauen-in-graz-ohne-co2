@@ -4,7 +4,7 @@ Um das 1,5° Ziel des Pariser Abkommens zu erreichen, darf Österreich noch ca. 
 
 Extinction Rebellion Graz erwartet von den politisch Verantwortlichen in Graz eine verbindliche Strategie, um diese Ziele zu erreichen. Diese Strategie und ihre Einhaltung muss nachvollziehbar sein - für die Bürgerinnen und Bürger in Graz, aber auch weltweit. Graz hat bessere Voraussetzungen als die meisten Städte der Welt, schnell CO2-frei zu werden und kann deshalb ein Vorbild sein. 
 
-In diesem Papier formulieren wir Fragen, die eine Dekarbonisierungsstrategie für das Grazer Bauwesen beantworten muss. Wir stellen sie allen Verabtwortlichen. Wir werden die Antworten veröffentlichen und regelmäßig nachfragen. 
+In diesem Papier formulieren wir Fragen, die eine Dekarbonisierungsstrategie für das Grazer Bauwesen beantworten muss. Wir stellen sie allen Verabtwortlichen. Wir werden die Antworten veröffentlichen und regelmäßig nachfragen. Wir werden uns durch Dialog, Aktionen und auch durch zivilen Ungehorsam für eine verbindliche, schnelle Dekarbonisierung der Stadt engagieren. 
 
 Die Fragen entsprechen den drei Forderungen von Extinction Rebellion **Handelt jetzt!/Act Now!**, **Sagt die Wahrheit!/Tell the Truth!** und **Lebendige Demokratie!/Beyond Politics!*.
 

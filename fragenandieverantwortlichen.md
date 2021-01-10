@@ -1,4 +1,4 @@
-Jede Grazerin und jeder Grazer verursacht im Jahr ca. 4 Tonnen CO2-Emissionen allein durch die Nutzung und Errichtung von Gebäuden. Das macht ingesamt etwa 1 Million Tonnen CO2 im Jahr aus. Das ist mehr als ein Prozent der jahrlichen CO2-Emissionen Österreichs. Abhängig vom Einkommen ist der Anteil an den verursachten Emissionen dabei sehr unterschiedlich. Luxuskonsum ist auch im Bau- und Energiebereich eine Hauptursache der Emissionssteigerungen der letzten Jahrzehnte. 
+Jede Grazerin und jeder Grazer verursacht im Jahr ca. 4 Tonnen CO2-Emissionen allein durch die Nutzung und Errichtung von Gebäuden. Das macht ingesamt etwa 1 Million Tonnen CO2 im Jahr aus - mehr als ein Prozent der jahrlichen CO2-Emissionen Österreichs. Abhängig vom Einkommen ist der Anteil an den verursachten Emissionen dabei sehr unterschiedlich. Luxuskonsum ist auch im Bau- und Energiebereich eine Hauptursache der Emissionssteigerungen der letzten Jahrzehnte. 
 
 Um das 1,5° Ziel des Pariser Abkommens zu erreichen, darf Österreich noch ca. 400 Millionen Tonnen CO2 emittieren. Die Emissionen müssen deshalb kurzfristig auf Netto-Null gesenkt werden. Praktisch bedeutet das, dass die Grazer Gebäude bereits in der Nahen Zukunft keine CO2-Emissionen mehr verursachen dürfen. Außerdem muss es klare Grenzen für die Menge der Emissionen geben, die die Gebäude bis dahin verursachen. 
 
@@ -6,7 +6,7 @@ Extinction Rebellion Graz erwartet von den politisch Verantwortlichen in Graz ei
 
 In diesem Papier formulieren wir Fragen, die eine Dekarbonisierungsstrategie für das Grazer Bauwesen beantworten muss. Wir stellen sie allen Verabtwortlichen. Wir werden die Antworten veröffentlichen und regelmäßig nachfragen. Wir werden uns durch Dialog, Aktionen und auch durch zivilen Ungehorsam für eine verbindliche, schnelle Dekarbonisierung der Stadt engagieren. 
 
-Die Fragen entsprechen den drei Forderungen von Extinction Rebellion **Handelt jetzt!/Act Now!**, **Sagt die Wahrheit!/Tell the Truth!** und **Lebendige Demokratie!/Beyond Politics!*.
+Die Fragen entsprechen den drei Forderungen von Extinction Rebellion **Handelt jetzt!/Act Now!**, **Sagt die Wahrheit!/Tell the Truth!** und **Lebendige Demokratie!/Beyond Politics!**.
 
 ## Handelt Jetzt!
 
